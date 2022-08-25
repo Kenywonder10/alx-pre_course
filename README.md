@@ -1,1 +1,1 @@
-Coding fury road, loving it.
+Coding fury road
